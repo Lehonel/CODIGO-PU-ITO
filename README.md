@@ -1,2 +1,2 @@
-# CODIGO-PU-ITO
+# CODIGO-PUÑITO
 full ñete
